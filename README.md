@@ -1,0 +1,1 @@
+🗳️ Secure Voting System
